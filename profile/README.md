@@ -16,7 +16,16 @@ Assistir Borderlands : O Destino do Universo Está em Jogo Filme Onl𝚒ne Dubla
 
 Assistir Borderlands : O Destino do Universo Está em Jogo Onl𝚒ne Dublado, Assistir filmes Completo Onl𝚒ne gratuito, Lançamentos de filmes, Filmes 1080p, Filmes 720p, Assistir Netflix grátis, Assistir Filmes Onl𝚒ne.
 
-SiNOPSiS
+Borderlands: O Destino do Universo Está em Jogo
+
+8 de agosto de 2024 No cinema | 1h 40min | Ação, Ficção Científica
+Direção: Eli Roth | Roteiro Craig Mazin
+Elenco: Cate Blanchett, Kevin Hart, Jack Black
+Título original Borderlands
+
+Sinopse
+Não recomendado para menos de 14 anos
+Baseado em uma das franquias de videogame mais vendidas de todos os tempos da Gearbox Software, o filme Borderlands: O Destino do Universo Está em Jogo acompanha Lilith (Cate Blanchett), uma criminosa com um passado enigmático que retorna ao seu planeta natal, Pandora, em busca da filha desaparecida de Atlas (Edgar Ramirez), um influente proprietário de uma das mais poderosas empresas de armas da galáxia. Para alcançar seu objetivo, Lilith forma uma equipe improvável composta pelo mercenário Roland (Kevin Hart), a imprevisível adolescente Tiny Tina (Ariana Greenblatt), e seu protetor monstruoso Krieg (Florian Munteanu). Juntam-se a eles a excêntrica cientista Dr. Tannis (Jamie Lee Curtis) e o robô falante Claptrap (Jack Black). Esta aliança de desajustados enfrenta uma série de desafios, desde ameaças alienígenas até perigosos bandidos, enquanto tentam desvendar um dos maiores segredos de Pandora. Com o destino do universo em jogo, a união desses personagens únicos será crucial para enfrentar as adversidades e revelar verdades ocultas que podem mudar o curso da galáxia.
 
 Onde posso ver filme Borderlands : O Destino do Universo Está em Jogo de graça?
 
